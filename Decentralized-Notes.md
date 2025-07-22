@@ -8,6 +8,7 @@ Just some important links which need to be viewed later:
 https://refactoring.guru/
 
 https://cppcon.org/
+https://cppcon.programmingarchive.com/
 
 
 https://www.youtube.com/watch?v=NYW1TKZG-58
