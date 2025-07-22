@@ -7,7 +7,8 @@ Just some important links which need to be viewed later:
 
 https://refactoring.guru/
 
-https://cppcon.org/
+https://cppcon.org/history/
+
 https://cppcon.programmingarchive.com/
 
 
