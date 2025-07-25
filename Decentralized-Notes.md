@@ -11,6 +11,17 @@ https://cppcon.org/history/
 
 https://cppcon.programmingarchive.com/
 
+https://www.youtube.com/results?search_query=everything+about+agile
+
+https://www.youtube.com/watch?v=HbgzrKJvDRw
+
+https://www.youtube.com/watch?v=0Lh_QWvyp78
+
+https://www.youtube.com/watch?v=XpFsMB6FoOs
+
+
+
+
 
 https://www.youtube.com/watch?v=NYW1TKZG-58
 
