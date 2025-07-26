@@ -13,7 +13,7 @@ https://cppcon.programmingarchive.com/
 
 https://www.youtube.com/results?search_query=everything+about+agile
 
-https://www.youtube.com/watch?v=HbgzrKJvDRw
+https://www.youtube.com/watch?v=WjwEh15M5Rw
 
 
 
