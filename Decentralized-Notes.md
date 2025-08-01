@@ -15,6 +15,8 @@ https://www.youtube.com/results?search_query=everything+about+agile
 
 https://www.youtube.com/watch?v=WjwEh15M5Rw
 
+https://www.youtube.com/watch?v=S2QAKxybgMg
+
 
 
 
