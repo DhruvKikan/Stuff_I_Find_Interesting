@@ -26,6 +26,7 @@ https://www.youtube.com/watch?v=L8XOqrKBM5w
 
 https://www.youtube.com/@twoswap/videos
 
+https://www.youtube.com/watch?v=zHTeCSVAFNY&list=PLsz00TDipIffreIaUNk64KxTIkQaGguqn
 
 
 
