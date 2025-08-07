@@ -28,6 +28,8 @@ https://www.youtube.com/@twoswap/videos
 
 https://www.youtube.com/watch?v=zHTeCSVAFNY&list=PLsz00TDipIffreIaUNk64KxTIkQaGguqn
 
+https://www.youtube.com/watch?v=sZ60bY2pJfo
+
 
 
 
