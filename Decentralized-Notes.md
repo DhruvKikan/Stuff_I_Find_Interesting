@@ -16,6 +16,15 @@ https://www.youtube.com/watch?v=teg23SJlyl8&pp=0gcJCa0JAYcqIYzv
 
 https://www.youtube.com/watch?v=KPoeNZZ6H4s&pp=0gcJCa0JAYcqIYzv
 
+https://www.youtube.com/watch?v=U3uHJm8sREg
+
+https://www.youtube.com/@TheWolfAround/playlists
+
+
+
+
+
+
 
 Just some important links which need to be viewed later:
 
