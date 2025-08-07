@@ -1,6 +1,18 @@
 Github might actually be a pretty goated notes taking app
 
+Gamedev stuff:
 
+https://www.youtube.com/watch?v=CIZB4TCY4MM
+
+https://www.youtube.com/watch?v=dHPuU-DJoBM&list=PLv8Ddw9K0JPg1BEO-RS-0MYs423cvLVtj
+
+https://www.youtube.com/watch?v=q9aAoVJsTUQ
+
+https://www.youtube.com/watch?v=Y9U9IE0gVHA&list=PL8327DO66nu9qYVKLDmdLW_84-yE4auCR
+
+https://www.youtube.com/watch?v=Y9U9IE0gVHA&list=PL8327DO66nu9qYVKLDmdLW_84-yE4auCR
+
+https://www.youtube.com/watch?v=teg23SJlyl8&pp=0gcJCa0JAYcqIYzv
 
 
 Just some important links which need to be viewed later:
