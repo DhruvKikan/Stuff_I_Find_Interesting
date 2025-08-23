@@ -38,6 +38,24 @@ https://www.youtube.com/watch?v=iwRaNYa8yTw
 
 https://www.youtube.com/watch?v=NLBXgSmRBgU
 
+https://www.youtube.com/watch?v=rwgAbBmzi5U
+
+https://www.youtube.com/watch?v=yyZMoE1FAJ0
+
+https://www.youtube.com/watch?v=QQ-ck0ue0xE
+
+https://www.youtube.com/watch?v=tdpeFXGrBx0
+
+https://www.youtube.com/watch?v=VWC9RT5u8gQ
+
+https://www.youtube.com/watch?v=tVGixG_N_Pg
+
+https://www.youtube.com/watch?v=dEdFM0uQpA0
+
+https://www.youtube.com/watch?v=Len8UhXqH28
+
+https://www.youtube.com/watch?v=JxI3Eu5DPwE
+
 
 
 
